@@ -1,5 +1,10 @@
 # Mardi Himal Trek - 10 Days Guide
 
+## [Learn more about Mardi Himal Base Camp Trek by Clicking Here](https://nepaladventuretrail.com/tour/mardi-himal-base-camp-trek) 
+
+## ![Mardi Himal Trek Photos](https://www.happytreksnepal.com/media/images/medium/img-0231.jpg)
+# [Visit Here for More Info & Booking](https://nepaladventuretrail.com/tour/mardi-himal-base-camp-trek) 
+
 The Mardi Himal Trek is one of the most scenic and rewarding short treks in the Annapurna region of Nepal. This guide provides detailed information about the trek, including its difficulty level, cost, itinerary, and the highlights of this beautiful journey.
 
 ## Overview
