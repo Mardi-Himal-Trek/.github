@@ -21,6 +21,9 @@ The Mardi Himal Trek takes you to the base of Mardi Himal, offering a unique and
 ## How Long is Mardi Himal Trek?
 The Mardi Himal Trek can be completed in about **5 to 7 days** if you are looking for a shorter experience, but for a more relaxed pace with added acclimatization, the **10-day itinerary** is perfect. This allows you to explore the area in-depth while also adjusting to the altitude in a safe and comfortable manner.
 
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/12/mardi-base-camp-trek-nepal-adventure-trail-scaled.webp)
+
+
 ## Is Mardi Himal Trek Difficult?
 The **Mardi Himal Trek** is generally considered **moderate in difficulty**, making it suitable for trekkers with some experience in mountain trekking. However, the trek involves moderate ascents, especially near the higher altitudes, so a good level of fitness is recommended. The altitude is not as extreme as some other Annapurna treks, but reaching elevations above 4,000 meters does require proper acclimatization.
 
@@ -93,6 +96,9 @@ Maps can be found at trekking agencies in Pokhara or online sources for detailed
 - Complete your trek by descending to **Kande** and driving back to **Pokhara**.
 - Overnight stay in Pokhara or head back to Kathmandu.
 
+![screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/12/Mardi-BC.webp)
+
+
 ## Mardi Himal Trek Price
 The cost of the Mardi Himal Trek can vary depending on the package chosen, whether you go solo or with a guide. To know the pricing [visit here](https://nepaladventuretrail.com/tour/mardi-himal-base-camp-trek/)
 ## Mardi Himal Trek 3 Days Alternative
@@ -110,6 +116,9 @@ Here are some highlights you'll experience on the Mardi Himal Trek:
 - **Lush Forests and Rhododendron Blooms** in the spring
 - **Picturesque Villages** such as Pothana and Forest Camp
 - **Breathtaking Sunrise and Sunset Views** from High Camp
+
+![Screenshots](https://nepaladventuretrail.com/wp-content/uploads/2024/12/Way-to-Mardi.webp)
+
 
 ## FAQs
 
@@ -139,6 +148,9 @@ Accommodation along the Mardi Himal Trek consists mainly of **teahouses**. These
 
 ### 8. **Can I do the Mardi Himal Trek solo?**
 Yes, **solo trekking** is allowed on the Mardi Himal Trek, though it is recommended to trek with a guide or at least in a group if you're unfamiliar with the region. Having a guide will improve your safety and experience.
+
+![screenshots](https://nepaladventuretrail.com/wp-content/uploads/2024/12/Langtang-valley-trek-nepal-adventure-trail-13-scaled.webp)
+
 
 ---
 
