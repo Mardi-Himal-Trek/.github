@@ -1,4 +1,4 @@
-# Mardi Himal Trek - 10 Days Guide
+# Mardi Himal Base Camp Trek: Map, Itinerary, Cost & Essential Tips – 10 Days
 
 ## [Learn more about Mardi Himal Base Camp Trek by Clicking Here](https://nepaladventuretrail.com/tour/mardi-himal-base-camp-trek) 
 
